@@ -14,8 +14,8 @@ keep_files:
 
 
 # Site settings
-title: Airspace
-subtitle: "A free HTML5 agency template"
+title: QuedArte na casa
+subtitle: "Un proxecto colaborativo con diferentes itinerarios para pasear polo noso día a día durante o #confinamento.  "
 url: "http://quedartenacasa.github.io" # the base hostname & protocol for your site
 # baseurl: "/the/subpath/of/your/site" # Set this value to "" if you want your site to be root
 baseurl: ""
