@@ -21,9 +21,5 @@ fields:
 - type: text
   name: author
   label: author
-- name: tags
-  type: tag_list
-  default: []
-  label: tags
 pages:
 - _posts/tedsa.md
