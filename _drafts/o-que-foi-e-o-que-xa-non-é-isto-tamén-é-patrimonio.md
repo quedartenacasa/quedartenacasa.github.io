@@ -1,9 +1,9 @@
 ---
 layout: post
 title: 'O que foi e o que xa non é: isto tamén é patrimonio'
-author: ''
+author: 'Lucía '
 date: 
-meta: ''
+meta: patrimonio etnográfico, muíños, identidade, memoria
 
 ---
 Como ben dicía Cunqueiro Galiza é o país dos mil ríos, pero sobre todo é o país de labregos. Un mundo no que o “hoxe por ti e mañá por min” define a unha comunidade unida que vivía e, en menor medida vive, coas súas propias normas sociais e costumes na Galiza labrega. Nas aldeas espalladas pola nosa rexión — unha rexión de ríos, fontes, regatos pequenos, prados ríos e arboredas \[...\] aos que tanto aloumiñou Rosalía cos seus versos — aínda se manteñen algunhas mostras do denominado patrimonio etnográfico. Mais, o seu sentido está caendo no esquecemento. Será que, como dixo un día Isaac Díaz Pardo "que gran país e que caralho de xente", unha frase moi axeitada para ser usada nos tempos de anulación do que hoxe non é produtivo.
