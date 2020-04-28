@@ -15,3 +15,5 @@ Sexa como for, hoxe falamos do que foi e xa non é. Será a nostalxia por un pas
 ## **A MAQUÍA DO TEMPO**
 
 É por isto, que querendo desviar o curso do río do esquecemento e fertilizar a nosa historia recente, vos presento un conto de experiencias vividas. Os protagonistas? Os nosos avós e avoas que viviron e viven da terra, e co papel secundario e non menos importantes os muíños de río; un todo que non se tería dado sen a riqueza do patrimonio territorial galego.
+
+![Muíño en abandoado. Patrimonio etnográfico.](/uploads/IMG_0518.jpg "Muíño da Barcia")
