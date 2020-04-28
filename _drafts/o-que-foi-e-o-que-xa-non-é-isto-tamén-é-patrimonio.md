@@ -84,4 +84,4 @@ Ata aquí o noso conto. Como dixemos, algúns muíños da Galiza están reformad
 
 ##### Boca sen moas é como un muíño sen pedra
 
-![](/uploads/IMG_0473.jpg)
+![Patrimonio cultural](/uploads/IMG_0473.jpg "Moa do muíño")
