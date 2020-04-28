@@ -14,6 +14,10 @@ Sexa como for, hoxe falamos do que foi e xa non é. Será a nostalxia por un pas
 
 ## **A MAQUÍA DO TEMPO**
 
+![Patrimonio etnográfico](/uploads/IMG_0526.jpg "Muíño de río")
+
 É por isto, que querendo desviar o curso do río do esquecemento e fertilizar a nosa historia recente, vos presento un conto de experiencias vividas. Os protagonistas? Os nosos avós e avoas que viviron e viven da terra, e co papel secundario e non menos importantes os muíños de río; un todo que non se tería dado sen a riqueza do patrimonio territorial galego.
 
-![Muíño en abandoado. Patrimonio etnográfico.](/uploads/IMG_0518.jpg "Muíño da Barcia")
+Concha e Tucho son dous avós que foron nados en dúas parroquias do actual concello de Valga, Xanza e Setecoros, xusto no ano que estalou a Guerra Civil. Viviron e viven da terra, economía de subsistencia no que o campo era a gran fonte de recursos, os ciclos agrarios a súa biblia labrega e as patacas, trigo, centeo, millo e as verzas seus mandamentos divinos. 
+
+O trigo e o millo era moi importante nas dietas dos nosos avós, con eles facían o pan, empanadas, papas de millo... Concha e Tucho ían ao muíño que había ao outro lado da ribeira do Río Louro, xusto enfronte do seu galiñeiro. Alí moían o millo os xoves e sábados de todo o ano e facían pan cada oito días porque como se di _o que ten muíño e forno come o pan todo_.
