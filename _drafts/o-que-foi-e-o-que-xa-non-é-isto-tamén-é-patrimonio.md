@@ -53,3 +53,31 @@ Tamén había os muíños da maquía, cando non había auga suficiente os veciñ
 ![Patrimonio e memoria](/uploads/IMG_0431.jpg "Quenlla e ollo da moa")
 
 Na Ínsua, José foi quen herdou a casa, e con ela tamén o muíño. A súa familia vivía del, da maquía, da terra e escasa gandería. A súa casa está encima dun regato do Río Valga, foron os seus avós, os da Insua quen desviaron ese pequeno río que tamén aproveitaban e aproveitan como lavadoiro.
+
+![Patrimonio cultural etnográfico](/uploads/IMG_0455-1.jpg "Presa, desvío do río para o regato que da vida ao muiño e mesmo era lavadoiro ")
+
+![Etnografía](/uploads/IMG_0460.jpg "Cubo, onde se almacena a auga")
+
+> “Cando había enchentas, a pota do caldo flotaba e daquela tampouco había lus e andabamos á busca da pota. Outra ves, vimos como marchaba un capacho pola eira abaixo. _A auga que fai tolear ós muíños, non é extraño que derrame os camiños._” 
+>
+> José 
+
+A luz non chegou a Senín ata o 57 gracias segundo din, a Don Dino, cura naquela altura da parroquia de Setecoros. Na mesma época tamén chegou ao resto do concello.  A casa da Insua ten unha fachada propia da arquitectura tradicional galega de finais do século XIX e de ben entrados no s. XX: casa de pedra recebada, viña na parte dianteira, alboio anexo e eira e curral. Na primeira planta está a cociña, as antigas cuadras e o muíño; na segunda os cuartos.
+
+![Patrimonio cultural](/uploads/IMG_0477.jpg "Casa de José e Carme, dentro atópase o muíño")
+
+> “Meu tío ghateaba polas sepas da viña cando había enchentas ata atravesar e chegar ao outro lado, así podía saír de festa... Moitos contos...Tamén lembro como os sacos de millo cheghaban alá ao fondo, todos en fila esperando para moer. Mais cando viña o tempo seco o muíño estaba parado, non chegaba a auga e s_e o muíño non anda, a maquía non se gaña_”.
+>
+> José
+
+![](/uploads/IMG_0466-1.jpg "Parte traseira da casa, onde está o muíño")
+
+É ben curioso o Muíño da Ínsua, está nun cuarto máis da casa e baixo esta pasa o regueiro que o fai bailar. Na actualidade, o Muíño de Maquía da Ínsua segue xirando cando os seus donos moen, de cando en vez. Xa non hai sacos de millo que esperan ser moídos ata o outro lado da eira.  
+
+O muíño de Senín tamén paga a súa maquía, cazos verdes, tellados sen tellas, portas caídas... Leva 30 anos parado, substituído polo novo e futuro obsoleto muíño.
+
+![Patrimonio e tecnoloxías](/uploads/MILHO.jpg "Muíño eléctrico")
+
+Ata aquí o noso conto. Como dixemos, algúns muíños da Galiza están reformados para pasaren a ser un recurso turístico, unha forma de recuperación da súa figura material. Porén, non fai que sintamos que sexa máis ou menos parte de nós se non coñecemos os múltiples significados que pode ter un espazo, máis aló das partes ou funcionamentos dos muíños.
+
+ A memoria dos nosos en relación ao territorio, as formas de vivir... coñecer un anaco da nosa esencia fará que sintamos que cada experiencia vivida pasa a formar parte da nosa propia vida. Ao igual que non hai ponte sen río nin muíño sen rodicio, tampouco hai cultura sen memoria nin identidade sen aprecio.
