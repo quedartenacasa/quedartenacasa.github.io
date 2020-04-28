@@ -81,3 +81,7 @@ O muíño de Senín tamén paga a súa maquía, cazos verdes, tellados sen tella
 Ata aquí o noso conto. Como dixemos, algúns muíños da Galiza están reformados para pasaren a ser un recurso turístico, unha forma de recuperación da súa figura material. Porén, non fai que sintamos que sexa máis ou menos parte de nós se non coñecemos os múltiples significados que pode ter un espazo, máis aló das partes ou funcionamentos dos muíños.
 
  A memoria dos nosos en relación ao territorio, as formas de vivir... coñecer un anaco da nosa esencia fará que sintamos que cada experiencia vivida pasa a formar parte da nosa propia vida. Ao igual que non hai ponte sen río nin muíño sen rodicio, tampouco hai cultura sen memoria nin identidade sen aprecio.
+
+##### Boca sen moas é como un muíño sen pedra
+
+![](/uploads/IMG_0473.jpg)
