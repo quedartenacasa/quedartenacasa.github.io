@@ -2,7 +2,7 @@
 layout: post
 title: 'O que foi e o que xa non é: isto tamén é patrimonio'
 author: 'Lucía '
-date: 
+date: 2020-04-28 12:40:00 +0000
 meta: patrimonio etnográfico, muíños, identidade, memoria
 
 ---
